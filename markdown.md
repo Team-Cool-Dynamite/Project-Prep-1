@@ -71,7 +71,7 @@ Tracy Oakley, Cody De La Torre, Devon Terry, Todd Wolden
 
 ### What hours will you be available to communicate?
 
-- 8am to 6pm
+- 9am to 5:30pm
 
 ### What platforms will you use to communicate (ie. Slack, phone …)?
 
